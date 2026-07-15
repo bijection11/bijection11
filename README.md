@@ -1,1 +1,1 @@
-Not allowed any kind of llms 
+Not allowed any kind of LLMs 
