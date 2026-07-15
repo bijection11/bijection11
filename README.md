@@ -1,1 +1,1 @@
-LoL!
+Not allowed any kind of llms 
