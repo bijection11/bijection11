@@ -1,1 +1,1 @@
-Not allowed any kind of LLMs 
+### No LLMS allowed. 
